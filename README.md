@@ -1,1 +1,1 @@
-# Thrushwanth_kakuturu.github.io
+# Thrushwanth.github.io
